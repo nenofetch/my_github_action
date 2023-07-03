@@ -2,7 +2,7 @@
 
 Some quote from internet
 >
->                   *“Progress isn't made by early risers. It's made by lazy men trying to find easier ways to do something.”*
+>             *“Progress isn't made by early risers. It's made by lazy men trying to find easier ways to do something.”*
 >                                                       ― Robert Heinlein
 
 
